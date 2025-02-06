@@ -1,0 +1,1 @@
+Photo "Snowy Winter Wonderland in Lapland, Finland" by Mari Anteroinen: https://www.pexels.com/photo/snowy-winter-wonderland-in-lapland-finland-30433172/
